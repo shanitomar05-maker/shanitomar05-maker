@@ -1,4 +1,4 @@
-# Hi, I'm Shani Tomar 👋
+# Hi, I'm Shani Singh Tomar 👋
 
 ### AI & Technology Enthusiast | AI Tools | Claude | GitHub | Continuous Learner
 
